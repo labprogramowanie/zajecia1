@@ -1,1 +1,0 @@
-# zajecia1
